@@ -1,1 +1,1 @@
-# Elitetech-inter
+# Elitetech-intern
